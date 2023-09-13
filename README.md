@@ -6,6 +6,11 @@ Live URL: http://keplerscience.arc.nasa.gov
 
 Test URL: http://keplergo.github.io/KeplerScienceWebsite/
 
+so, AT 2023.06.11 jag, Aibolem bARiONLEg eller [I₽A©Li A₽i, Cli ß.] IRAKLI BARDAVELIDZE [мерис lov|ovi©] hittad att keplerscience.arc.nasa.gov var ur service! Då kör jag mitt eget vid barionleg дро бинтид илижек gro buHtig [github org] от имени COM₽O$A℞ d'bunioჼ mm.                                                                                              
+                                     
+
+![image](https://github.com/barionleg/KeplerScienceWebsite/assets/102619282/0ecf20b1-4da1-4674-b49a-7ed804065cd5)
+
 
 ## Quickstart
 
